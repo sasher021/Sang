@@ -1,0 +1,2 @@
+# Sang
+هرجاچراغی روشنه&amp;nbsp;&amp;nbsp;&amp;nbsp;&amp;nbsp;&amp;nbsp;&amp;nbsp; از ترس تنها بودن&lt;br> ای ترس تنهایی من&amp;nbsp;&amp;nbsp;&amp;nbsp;&amp;nbsp;&amp;nbsp;&amp;nbsp;&amp;nbsp; اینجاچراغی روشنه&lt;br> اینجا یکی ازحس شب&amp;nbsp;&amp;nbsp;&amp;nbsp; احساس وحشت میکنه&lt;br> هر روز از ترس سکوت&amp;nbsp;&amp;nbsp;&amp;nbsp;&amp;nbsp;&amp;nbsp;&amp;nbsp;&amp;nbsp; با سنگ صحبت میکنه&amp;nbsp; 
